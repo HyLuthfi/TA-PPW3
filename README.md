@@ -7,4 +7,4 @@
 
 ---
 
-TTerimakasih, Wassalamualaikum Wr. Wb. 
+Terimakasih, Wassalamualaikum Wr. Wb. 
